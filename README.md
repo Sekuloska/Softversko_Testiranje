@@ -1,1 +1,1 @@
-# Softversko Testiranje Labaratoriski
+# Softversko Testiranje Labоratoriski
